@@ -1,2 +1,2 @@
 
-Hi, @edayot a developer beginner
+Hi, I'm @edayot a developer !
